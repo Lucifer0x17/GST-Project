@@ -4,5 +4,5 @@
 
 ##### I lost my original file so I was bit dissapointed. But few days ago I found this incomplete copy of my project. Right
 
-##### now I am unable to rectify it. But I will do that in near future and if any one wants to feel free to contact.
+##### now I am unable to rectify it. But I will do that in near future and if any one wants to contribute feel free to contact.
 
